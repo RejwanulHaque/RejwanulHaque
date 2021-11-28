@@ -1,4 +1,4 @@
-### Hi there 👋, Hi, I'm Rejwanul Haque
+### Hi there 👋, I'm Rejwanul Haque
 #### {#} web designer 
 ![{#} web designer ](https://arturssmirnovs.github.io/github-profile-readme-generator/images/banner.png)
 
